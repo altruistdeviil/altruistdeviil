@@ -1,1 +1,1 @@
-![](https://komarev.com/ghpvc/?username=altruistdeviil&base=2867&label=Devils&style=plastic&color=red)
+![](https://komarev.com/ghpvc/?username=altruistdeviil&base=524&label=Devils&style=plastic&color=red)
