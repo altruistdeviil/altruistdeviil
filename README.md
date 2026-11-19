@@ -3,10 +3,11 @@
 ![App screenshot](https://cdn.discordapp.com/attachments/1377517409895977011/1573005905795227708/940900547153151456_1.png?ex=6b006f68&is=6aff1de8&hm=0c83ed22819eb01e86f017f9b52e0c5d487ff291985c06acf62e6d0d5f9d0a01&)
 ![App screenshot](https://cdn.discordapp.com/attachments/1377517409895977011/1573005905354821784/940900547153151456_2.png?ex=6b006f68&is=6aff1de8&hm=4842d97477912d7f81f9a31e9869d47ee7410cec9c29c8a2b06dc2099ae96516&)
 
-</div>
-  ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀    ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀  ⠀  ⠀   ![](https://komarev.com/ghpvc/?username=altruistdeviil&base=524&align=center&label=Devils&style=plastic&color=red)
+![](https://komarev.com/ghpvc/?username=altruistdeviil&base=524&align=center&label=Devils&style=plastic&color=red)
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ i love my online fam!
+i love my online fam!
+
+</div>
 
 <div align="center">
  <details>
