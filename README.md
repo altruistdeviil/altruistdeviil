@@ -16,6 +16,3 @@
 ⠀</details>
 </div>
   
-<txt align="center">
-${{\colorcode{#92cac0}{\textsf{ Test. }}}}$
-</txt>
