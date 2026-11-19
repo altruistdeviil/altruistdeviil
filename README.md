@@ -18,6 +18,12 @@
   
 <div align="center">
 
-$\color{#92cac0}{\text{Semi-verbal when my social battery goes below 60%, means, iwc unless close friends. I don't have dni's as i block freely. Ask 2 friend in pt as i have my friend requests disabled.}}$
+$\color{#92cac0}{\text{Semi-v when my social battery goes below 60%.}}$
+
+$\color{#92cac0}{\text{means, iwc unless close friends,}}$
+
+$\color{#92cac0}{\text{I don't have dni's as i block freely}}$
+
+$\color{#92cac0}{\text{Ask 2 friend in pt as i have my friend requests disabled.}}$
 
 </div>
