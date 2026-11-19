@@ -16,5 +16,6 @@
 ⠀</details>
 </div>
   
-
-     $\color{#92cac0}{\text{Test.}}$
+<div align="center">
+$\color{#92cac0}{\text{Test.}}$
+</div>
