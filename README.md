@@ -28,4 +28,6 @@ $\color{#92cac0}{\text{Ask 2 friend in pt as i have my friend requests disabled.
 
 $\color{#92cac0}{\text{I'm mostly afk or offtab in pt, so always w2i}}$
 
+$\color{#92cac0}{\text{c+h / interact freely unless i'm with fam/close friends.}}$
+
 </div>
