@@ -11,7 +11,7 @@ i love my online fam!
 <div align="center">
  <details>
   <summary>
- ${{\color{#dd3939}{\textsf{ Thankyou !!! }}}}$
+ ${{\color{#b54444}{\textsf{ Thankyou !!! }}}}$
 ⠀</summary>
 
  [@piddlesjet](https://github.com/piddlesjet) ‿‿
