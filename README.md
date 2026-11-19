@@ -17,5 +17,5 @@
 </div>
   
 <txt align="center">
-${{\color{92cac0}{\textsf{ Test. }}}}$
+${{\color{#92cac0}{\textsf{ Test. }}}}$
 </txt>
