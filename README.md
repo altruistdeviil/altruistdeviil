@@ -30,6 +30,6 @@ $\color{#92cac0}{\text{I don't have dni's as i block freely}}$
 $\color{#92cac0}{\text{Ask 2 friend in pt as i have my friend requests disabled.}}$
 $\color{#92b5ca}{\text{I'm mostly afk or offtab in pt, so always w2i,}}$
 $\color{#92b5ca}{\text{c+h / interact freely unless i'm with fam/close friends.}}$
-![App screenshot](https://cdn.discordapp.com/attachments/1377517409895977011/1573007809644073081/red_header.jpg?ex=6b00712e&is=6aff1fae&hm=05515d177ea1eb61b8ffc21790a0195c5e721008b7c5686c77c450baef3513aa&)
+![App screenshot](https://cdn.discordapp.com/attachments/1377517409895977011/1573009455807729694/tumblr_188ad3c2edebe76f7a44e00f2aece041_5c1c9c56_2048.png?ex=6b0072b7&is=6aff2137&hm=3b5c62b3dc7e2f18be6cb850c4a0581477f48fbe1c438e5499b0984c2db58178&)
 
 </div>
