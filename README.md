@@ -2,7 +2,7 @@
 
 ![App screenshot](https://cdn.discordapp.com/attachments/1377517409895977011/1573009455514132641/tumblr_08b3a5e4747fec0492e02f898d9b924f_265cae6f_2048.png?ex=6b0072b7&is=6aff2137&hm=446303e341b95b5852c2105ded790326f24fc929a830c9298a2292755c99290a&)
 
-![](https://komarev.com/ghpvc/?username=altruistdeviil&base=524&align=center&label=Devils&style=plastic&color=red)
+![](https://komarev.com/ghpvc/?username=altruistdeviil&base=524&align=center&label=Little-Gray's&style=plastic&color=yellow)
 
 i love my online fam!
 
