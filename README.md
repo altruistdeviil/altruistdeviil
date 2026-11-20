@@ -25,7 +25,7 @@ i love my online fam!
 <div align="center">
 
 $\color{#e4ce84}{\text{Semi-v when my social battery goes below 60, }}$
-$\color{#dd9769}{\text{iwc unless close friends.}}$
+$\color{#7283ac}{\text{iwc unless close friends.}}$
 $\color{#e4ce84}{\text{I don't have dni's as i block freely}}$
 $\color{#e4ce84}{\text{Ask 2 friend in pt as i have my friend requests disabled.}}$
 $\color{#e4ce84}{\text{I'm mostly afk or offtab in pt, so always w2i,}}$
