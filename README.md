@@ -32,7 +32,7 @@ $\color{#ab5e5e}{\text{I'm mostly afk or offtab in pt, so always w2i,}}$
 $\color{#ab5e5e}{\text{c+h / interact freely unless i'm with fam/close friends.}}$
 
 
-[**a**ta](<https://altruistdeviil.atabook.org/>)⠀$\color{#dac384}{\text{︵︵}}$   [**g**uns](<https://guns.lol/altruistdeviil>)⠀$\color{#dac384}{\text{︵︵}}$   [p**rns.pa**ge](<https://en.pronouns.page/@altruistdeviil>)
+[**a**ta](<https://altruistdeviil.atabook.org/>)⠀︵︵   [**g**uns](<https://guns.lol/altruistdeviil>)⠀︵︵   [p**rns.pa**ge](<https://en.pronouns.page/@altruistdeviil>)
 
 ![App screenshot](https://cdn.discordapp.com/attachments/1377517409895977011/1573010669379387562/tumblr_4df3cbf3d7850c021d9519725f43a285_0f2fba51_1280.webp?ex=6b0073d8&is=6aff2258&hm=4aa5b4a9a478fddf9e252701423f3f960ed56e2e39cc1354ddcddb7290219352)
 
