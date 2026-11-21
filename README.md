@@ -1,6 +1,6 @@
 <div align="center">
 
-<img width="2048" height="228" alt="tumblr_59879d3e45c315c247ceebae03f2b328_bac26360_2048" src="https://github.com/user-attachments/assets/eb4b0ec1-3137-4d9f-992e-8f1e109fe635" />
+<img width="2048" height="228" alt="tumblr_fdb6935fdc0a49b50c18517e5b57d0a6_eca6861c_2048" src="https://github.com/user-attachments/assets/f9cf5ad7-04c0-4ef5-8dfd-0c47f3325c01" />
 
 ![](https://komarev.com/ghpvc/?username=altruistdeviil&base=524&align=center&label=Little+Gray's&style=flat&color=dac384)
 
@@ -34,6 +34,6 @@ $\color{#ab5e5e}{\text{c+h / interact freely unless i'm with fam/close friends.}
 
 [**a**ta](<https://altruistdeviil.atabook.org/>)⠀︵︵   [**g**uns](<https://guns.lol/altruistdeviil>)⠀︵︵   [p**rns.pa**ge](<https://en.pronouns.page/@altruistdeviil>)
 
-![App screenshot](https://cdn.discordapp.com/attachments/1377517409895977011/1573010669379387562/tumblr_4df3cbf3d7850c021d9519725f43a285_0f2fba51_1280.webp?ex=6b0073d8&is=6aff2258&hm=4aa5b4a9a478fddf9e252701423f3f960ed56e2e39cc1354ddcddb7290219352)
+<img width="2048" height="228" alt="tumblr_59879d3e45c315c247ceebae03f2b328_bac26360_2048" src="https://github.com/user-attachments/assets/da8be58b-ba90-4162-9241-ea51151f4f37" />
 
 </div>
